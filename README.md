@@ -2,4 +2,4 @@
 - 👀 I’m interested in AI and cloud computing
 - 🌱 I’m currently learning UI/UX
 - 💞️ I’m looking to collaborate on next year
-- 📫 How to reach me; rohitsinghbishtrsb001@gmail.com
+- 📫 How to reach me; DM: https://x.com/Rahulxero
